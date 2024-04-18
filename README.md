@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @catmandudewes
-- 👀 I’m interested in women
-- 🌱 I’m currently learning about women
-- 💞️ I’m looking to collaborate on big money
-- 📫 How to reach me tinder
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning about stuff
+- 💞️ hi
+- 📫 How to reach me idk
 - 😄 Pronouns: he him
 - ⚡ Fun fact: cats are better than dogs
 - 
